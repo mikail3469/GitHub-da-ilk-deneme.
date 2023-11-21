@@ -1,0 +1,1 @@
+# GitHub-da-ilk-deneme.
